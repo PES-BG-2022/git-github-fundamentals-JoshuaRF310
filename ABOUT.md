@@ -1,0 +1,2 @@
+Henry Josué Pacay Caal
+Mis expectativas sobre el curso son dificiles de dimensionar, porque de hecho no tengo conocimiento sobre el tema, por decirlo escaso es mucho, de modo que estas primeras jornadas han sido cuesta arriba y totalmente complicadas, porque si soy honesto de las deficiencias que tengo al completar las tareas y las secuencias de las mismas.
